@@ -1,6 +1,6 @@
 <div align="center">
 
-# 🦚 Himani Pagade
+# 🦚 Hannah (Himani) Pagade
 ### Multi-Industry Entrepreneur | Fantasy Romance Author | Healthcare & Publishing Innovator
 
 *"Where the Phoenix Rises and the Peacock Dances"*
